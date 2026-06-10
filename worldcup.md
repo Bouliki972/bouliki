@@ -12,4 +12,4 @@ Delocalising sport events are not a new concept. The famous tour de France often
 It is important to notice that teams like are not playing at home since a while due to wars.
 So delocalisation is the word of the month, year. Word that should actually supports EDI equity, Diversity & Inclusivity.  It is sadly far from the reality.
 
-Back to the game I love. I hope an African will win the title perfect at least make it to the final. 
+Back to the game I love. I hope an African country will win the title perfect at least make it to the final. 
