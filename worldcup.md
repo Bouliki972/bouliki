@@ -1,4 +1,4 @@
-# 🏆 World Cup 2026 Journal
+# 🏆 Football World Cup 2026 Journal
 
 Welcome to my mobile matchday journal! I will be updating this page regularly throughout the entire tournament.
 
