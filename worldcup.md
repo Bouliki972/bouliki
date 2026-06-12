@@ -7,6 +7,17 @@ title: World Cup 2026 Hub
 Welcome to my mobile matchday journal! I will be updating this page regularly throughout the entire tournament.
 
 ---
+### 🟥 Red, Red, and Red: The Opening Ceremony & Game
+
+The opening ceremony was absolutely worth watching. We had Andrea Bocelli, Shakira & Burna Boy, David Guetta, and other massive artists for the younger generation. It was lively and distinctly Mexican with a modern twist. The actress Salma Hayek officially launched the tournament!
+
+**The Match: 🇲🇽 Mexico 2-0 South Africa 🇿🇦**
+Mexico won 2-0, and it was well deserved. Interestingly, the referees are wearing body cameras now so the audience can experience the exact view of the man with the whistle. I was hoping for a female referee to take charge of the opener, though!
+
+🇿🇦 South Africa was messy in their play, committed loads of fouls, and ended up with two players expelled. 🇲🇽 One Mexican player also received a straight red card right at the end of the match. So, red was definitely the colour of the day.
+
+I struggled to stay awake but managed to see the final whistle! I decided against watching the 03:00 game, but 🇰🇷 South Korea won their match.
+
 
 ## ⚽ Live Match Updates
 
