@@ -7,8 +7,10 @@ title: World Cup 2026 Hub
 Welcome to my mobile matchday journal! I will be updating this page regularly throughout the entire tournament.
 
 ---
+## ⚽ Live Match Updates
+
 ### 🟥 Red, Red, and Red: The Opening Ceremony & Game
-![Referee Whistle](https://images.unsplash.com/photo-1518063319789-7217e6706b04?w=600)
+![Referee cards](https://images.unsplash.com/photo-1511886929837-354d827aae26?w=800)
 
 The opening ceremony was absolutely worth watching. We had Andrea Bocelli, Shakira & Burna Boy, David Guetta, and other massive artists for the younger generation. It was lively and distinctly Mexican with a modern twist. The actress Salma Hayek officially launched the tournament!
 
@@ -20,7 +22,7 @@ Mexico won 2-0, and it was well deserved. Interestingly, the referees are wearin
 I struggled to stay awake but managed to see the final whistle! I decided against watching the 03:00 game, but 🇰🇷 South Korea won their match.
 
 
-## ⚽ Live Match Updates
+## ⚽ Archive 
 
 ### The Delocalised World Cup (11 June-19 July 2026)
 
