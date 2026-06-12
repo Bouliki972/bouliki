@@ -8,6 +8,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 ---
 ### 🟥 Red, Red, and Red: The Opening Ceremony & Game
+![Referee Whistle](https://images.unsplash.com/photo-1518063319789-7217e6706b04?w=600)
 
 The opening ceremony was absolutely worth watching. We had Andrea Bocelli, Shakira & Burna Boy, David Guetta, and other massive artists for the younger generation. It was lively and distinctly Mexican with a modern twist. The actress Salma Hayek officially launched the tournament!
 
