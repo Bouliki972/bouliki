@@ -9,6 +9,31 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+### 🇨🇦 Friday's Second Opening Ceremony & Game
+
+I love Canada and I have fond memories of Toronto, so it pains me to say that the ceremony was somewhat disappointing. I suppose I was expecting too much! To top it off, the giant World Cup trophy replica on the pitch had a bit of a wardrobe malfunction when its cover got stuck.
+
+However, the acknowledgment of the Indigenous peoples of Canada was a beautiful touch. I didn't recognize any of the opening pop performers, though my daughter did. To me, the music all sounds like Shakira's style, but I guess that is just a generational thing! The stadium wasn't entirely full, but I think the fans were just waiting for Michael Bublé. His performance was AMAZING—absolutely my kind of music. Canada did well there!
+
+**The Match: 🇨🇦 Canada 1-1 Bosnia and Herzegovina 🇧🇦**
+History! This was the first-ever World Cup point for Les Rouges (Canada). Canada was the better team overall, but they had to come from behind to get the draw. Bosnia gave it their all—they played with their whole hearts as if this game were a final. It was highly entertaining football, and it kept me wide awake!
+
+Funny note: The Toronto stadium had a lot of empty sections, and the bright red seats could easily trick TV spectators into thinking the stadium was packed, since Canada was wearing full red jerseys!
+
+---
+
+### 🇺🇸 The Third Opening Ceremony & USA Kickoff
+
+I watched this one in fast-replay mode. The USA is known for doing things bigger than anyone else, and they can certainly put on a show! 
+
+I was incredibly impressed by Tius Luka, the 10-year-old Norwegian singer who performed alongside Katy Perry. Another highlight was the national anthem of Paraguay, which was beautifully sung by performers in traditional clothing. Then, the US national anthem absolutely lifted the roof off the stadium. 
+
+Speaking of the Los Angeles stadium—it is a beautiful, $5,5 billion chef-d'oeuvre. The show, too long for a football fan like me, concluded with a flyover by three helicopters. A new American World Cup tradition, perhaps? 
+
+The USA won their opening game easily, but it started way too late for me to watch live!
+
+## ⚽ Archive 
+
 ### 🟥 Red, Red, and Red: The Opening Ceremony & Game
 ![Referee cards](https://images.unsplash.com/photo-1511886929837-354d827aae26?w=800)
 
@@ -21,9 +46,7 @@ Mexico won 2-0, and it was well deserved. Interestingly, the referees are wearin
 
 I struggled to stay awake but managed to see the final whistle! I decided against watching the 03:00 game, but 🇰🇷 South Korea won their match.
 
-
-## ⚽ Archive 
-
+------'
 ### The Delocalised World Cup (11 June-19 July 2026)
 
 The 2026 Football World Cup will take place across three different countries in North America: 🇨🇦 Canada, 🇲🇽 Mexico, and the 🇺🇸 USA. 
