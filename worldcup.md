@@ -9,6 +9,19 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+### 🛌 Sleeping Beauty
+
+🇧🇷 Brazil vs. Morocco 🇲🇦
+I spontaneously woke up at midnight, however at 19:00 I was fast asleep, probably snoring!
+
+I watched a bit of it. 🇲🇦 Morocco was the better team and rightly so scored with a nice lob. I am not a fan of Morocco since the Africa Cup and the "keeper towel-gate" incident. They won on paper but on the field they lost vs 🇸🇳 Senegal. Vinicius Jr. scored a self-made goal and brought 🇧🇷 Brazil back into the game. Final result 1-1.
+
+The other games (watched the highlights) saw respectively the win of 🏴󠁧󠁢󠁳󠁣󠁴󠁿 Scotland vs. Haiti 🇭🇹, and 🇦🇺 Australia vs. Türkiye 🇹🇷; and an (embarrassing) draw between 🇶🇦 Qatar and Switzerland 🇨🇭. 
+
+Maybe they are no longer smaller teams.
+
+## ⚽ Archive 
+
 ### 🇨🇦 Friday's Second Opening Ceremony & Game
 
 I love Canada and I have fond memories of Toronto, so it pains me to say that the ceremony was somewhat disappointing. I suppose I was expecting too much! To top it off, the giant World Cup trophy replica on the pitch had a bit of a wardrobe malfunction when its cover got stuck.
@@ -32,7 +45,7 @@ Speaking of the Los Angeles stadium—it is a beautiful, $5,5 billion chef-d'oeu
 
 The USA won their opening game easily, but it started way too late for me to watch live!
 
-## ⚽ Archive 
+--------
 
 ### 🟥 Red, Red, and Red: The Opening Ceremony & Game
 ![Referee cards](https://images.unsplash.com/photo-1511886929837-354d827aae26?w=800)
