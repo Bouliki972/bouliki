@@ -9,6 +9,26 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+### 🇨🇼 Curaçao: A True David vs. Goliath. 
+
+Curaçao is the smallest team of the tournament with around 160,000 inhabitants. This Caribbean island, known for its beaches, managed to: 
+1. Qualify for the World Cup — a historical moment!
+2. Score a goal against *Die Mannschaft*. That is not a small achievement.
+3. Show they (almost) never give up, never surrender.
+
+I was impressed by the football skills of the team but Juninho Bacuna is the one player that stood out . I was craving a Jearl Margaritha 😇 moment when he came into the game as a substitute. 
+
+The fact that almost all the players were born in the Netherlands is irrelevant. If we look closely at all teams, some players claim allegiance through their parents or grandparents. 
+
+Bravo Curaçao, the Caribbean is proud! The result is very telling though: 7-1 for 🇩🇪 Germany. It would have been embarrassing for Germany to not have won by such a margin, but they still let one goal in.
+
+**The Rest of the Games**
+🇨🇮 Ivory Coast stole a win in the 89th minute. This is a move typical of big, successful teams. They often play badly and are dominated, but they have 100% efficiency. Is it a sign that Ivory Coast will make it to the final? Time will tell.
+
+🇸🇪 Sweden destroyed Tunisia 🇹🇳 5-1.
+
+## ⚽ Archive
+
 ### 🛌 Sleeping Beauty
 
 🇧🇷 Brazil vs. Morocco 🇲🇦
@@ -20,7 +40,7 @@ The other games (watched the highlights) saw respectively the win of 🏴󠁧�
 
 Maybe they are no longer smaller teams.
 
-## ⚽ Archive 
+------ 
 
 ### 🇨🇦 Friday's Second Opening Ceremony & Game
 
