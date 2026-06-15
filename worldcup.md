@@ -87,7 +87,7 @@ Delocalising sport events are not a new concept. The famous Tour de France often
 It is important to notice that teams like Ukraine or Palestine are not playing at home for a while due to War.
 So delocalisation is the word of the month and the year. Word that should actually supports EDI (Equity, Diversity & Inclusivity). Though sadly it is far from that reality in some cases.
 
-Back to the game I love: I hope an African country (go 🇿🇦, 🇲🇦, 🇸🇳!) will win the title this time, or at least make it to the final. For those of us based in Europe, the games are often at 21:00 or 03:00, with some at 05:00 or 23:00. It is more fun like this! 😊
+Back to the game I love: I hope an African country (go Morocco 🇲🇦 - ​Tunisia 🇹🇳 - Egypt 🇪🇬 - ​Algeria 🇩🇿 - Ghana 🇬🇭 - Cabo Verde 🇨🇻 ​-South Africa 🇿🇦 ​- Côte d'Ivoire 🇨🇮 (Ivory Coast) - Senegal 🇸🇳 ) will win the title this time, or at least make it to the final. For those of us based in Europe, the games are often at 21:00 or 03:00, with some at 05:00 or 23:00. It is more fun like this! 😊
 
 
 
