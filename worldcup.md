@@ -18,7 +18,7 @@ Curaçao is the smallest team of the tournament with around 160,000 inhabitants.
 
 I was impressed by the football skills of the team but Juninho Bacuna is the one player that stood out . I was craving a Jearl Margaritha 😇 moment when he came into the game as a substitute. 
 
-The fact that almost all the players were born in the Netherlands is irrelevant. If we look closely at all teams, some players claim allegiance through their parents or grandparents. 
+The fact that almost all the players were born in the Netherlands is irrelevant. If you look closely at most teams, plenty of players are eligible through their parents or grandparents.
 
 Bravo Curaçao, the Caribbean is proud! The result is very telling though: 7-1 for 🇩🇪 Germany. It would have been embarrassing for Germany to not have won by such a margin, but they still let one goal in.
 
