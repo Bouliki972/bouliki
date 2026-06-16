@@ -9,6 +9,20 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+### Vozinha, the goalkeeper, the hero of Cabo Verde
+
+Cabo Verde, a small African island nation of only 500,000 people, managed to draw 0-0 against Spain, one of the favorites and holder of the European cup. This is actually more embarrassing than Switzerland. 
+
+Cabo Verde players, following the example of their 40-year-old goalkeeper, fought successfully very hard. Anyone watching the game, perhaps except Spanish supporters, wanted them to score. Vozinha, who has played mostly at home throughout his career, was the man of the match. 
+
+Here are the stats: Spain had 75% possession, but Cabo Verde’s goalkeeper made 7 huge saves. 
+
+And the fun part? Vozinha went into the game with only 50,000 Instagram followers. Today, he already has over 6.8 million! And the number is growing. It's crazy—he now has more followers than the entire population of his own country multiplied by ten. 
+
+Not to forget, this is the same African island team that eliminated Cameroon to get here. 
+
+## ⚽ Archive
+
 ### 🇨🇼 Curaçao: A True David vs. Goliath. 
 
 Curaçao is the smallest team of the tournament with around 160,000 inhabitants. This Caribbean island, known for its beaches, managed to: 
@@ -27,7 +41,7 @@ Bravo Curaçao, the Caribbean is proud! The result is very telling though: 7-1 f
 
 🇸🇪 Sweden destroyed Tunisia 🇹🇳 5-1.
 
-## ⚽ Archive
+----
 
 ### 🛌 Sleeping Beauty
 
