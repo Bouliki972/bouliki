@@ -9,7 +9,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
-### Vozinha, the goalkeeper, the hero of Cabo Verde
+### 🇨🇻 Vozinha, the goalkeeper, the hero of Cabo Verde
 
 Cabo Verde, a small African island nation of only 500,000 people, managed to draw 0-0 against Spain, one of the favorites and holder of the European cup. This is actually more embarrassing than Switzerland. 
 
