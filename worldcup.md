@@ -23,7 +23,7 @@ Following Cabo Verde's 🇨🇻 feat, look at those AMAZING resulst:
 
 The other matches which I didn't see show a very good English team 🏴󠁧󠁢󠁥󠁮󠁧󠁿. They won 4-2 against Croatia 🇭🇷. Harry Kane is still one of the best number 9 strikers, and maybe they will finally bring it home.
 
-Outside of Africa, the Middle Eastern teams did great too—Iran 🇮🇷, Saudi Arabia 🇸🇦, and Jordan 🇯🇴 didn't lose and grabbed a point. 
+Outside of Africa, the Middle Eastern teams did great too—Iran 🇮🇷 and Saudi Arabia 🇸🇦 didn't lose and grabbed a point. 
 
 Looking at the fantastic results, African countries are getting closer and closer to the cup!
 
