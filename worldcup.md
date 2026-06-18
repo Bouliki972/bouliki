@@ -9,6 +9,26 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+### 🌍 Africa rocks!
+
+We all know since 2010 "Waka Waka" from Shakira, which was taken from the original Cameroonian 🇨🇲 makossa song "Zamina mina (Zangaléwa)". In 2026, "this time for Africa" is so true.
+
+Following Cabo Verde's 🇨🇻 feat, look at those AMAZING resulst:
+
+1. **Morocco** 🇲🇦 held the Brazil 🇧🇷 to a 1-1 draw! Ismael Saibari scored a beautiful goal to put them ahead, and even though Vinícius Júnior equalized. Morocco 🇲🇦 is  strong team and tehy can go far.
+2. **Egypt** 🇪🇬 got a 1-1 draw against Belgium 🇧🇪 on Mo Salah's birthday. Belgium 🇧🇪 was saved by a crazy own goal.
+3. **Senegal** 🇸🇳 held a draw in the 1st half against France 🇫🇷 (one of the best teams on paper). They scored a fantastic goal but couldn't compete with Les Bleus and Kylian Mbappé when they switched to 6th gear. 3-1 end result.
+4. **DR Congo (RDC)** 🇨🇩 leveled 1-1 with the well-seasoned Cristiano Ronaldo and Bruno Fernandes of Portugal 🇵🇹. Honestly, RDC 🇨🇩 deserved to win and could have won, but this is where experience makes the difference. They were amazing!
+5. **Ghana** 🇬🇭 won against Panama 🇵🇦 1-0.
+
+The other matches which I didn't see show a very good English team 🏴󠁧󠁢󠁥󠁮󠁧󠁿. They won 4-2 against Croatia 🇭🇷. Harry Kane is still one of the best number 9 strikers, and maybe they will finally bring it home.
+
+Outside of Africa, the Middle Eastern teams did great too—Iran 🇮🇷, Saudi Arabia 🇸🇦, and Jordan 🇯🇴 didn't lose and grabbed a point. 
+
+Looking at the fantastic results, African countries are getting closer and closer to the cup!
+
+## ⚽ Archive
+
 ### 🇨🇻 Vozinha, the goalkeeper, the hero of Cabo Verde
 
 Cabo Verde, a small African island nation of only 500,000 people, managed to draw 0-0 against Spain, one of the favorites and holder of the European cup. This is actually more embarrassing than Switzerland. 
@@ -20,8 +40,6 @@ Here are the stats: Spain had 75% possession, but Cabo Verde’s goalkeeper made
 And the fun part? Vozinha went into the game with only 50,000 Instagram followers. Today, he already has over 6.8 million! And the number is growing. It's crazy—he now has more followers than the entire population of his own country multiplied by ten. 
 
 Not to forget, this is the same African island team that eliminated Cameroon to get here. 
-
-## ⚽ Archive
 
 ### 🇨🇼 Curaçao: A True David vs. Goliath. 
 
