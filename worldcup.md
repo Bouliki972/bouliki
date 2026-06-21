@@ -9,6 +9,35 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+### 🛑 Good to know, I am not happy and I am disappointed
+
+Finally, the first trio of female referees to referee a game happened during Czechia 🇨🇿 vs. South Africa 🇿🇦. It was about time 📯. I will ignore for now that the referees are from the United States 🇺🇸. That said, I am shocked by the level of FIFA corruption; the executives do not even hide it anymore. I am disappointed. 
+
+I love the game, I played the game (amateur) for years, and now I watch the games whenever they're NOT behind a paywall. I am pissed, yes pissed, because now I barely watch football. This is the first time I have no clue which teams or players are best or spectacular from seeing the matches. So kudos to the Dutch broadcast NPO for showing all the games, and the same for the German broadcast ZDF. It is actually fun to watch the games on the German channel—one should try to watch a game in another language! My mum, bless her, "watches" the games via YouTube watch-alongs. 
+
+A line about the water breaks: It is a joke! 💨 The water breaks are commercial breaks in disguise. Why does football have to change the rules for surely the US audience, so they can go to the loo or grab a chemical soft drink? And the cherry on the cake is that a lot of stadiums have air-conditioning, and most temperatures are around 20°C. Oh well. 
+
+This leads to the carbon footprint of this World Cup. Delocalizing, yes, but polluting the planet even more? And high ticket prices? No. This is supposed to be accessible to all. 
+
+Last but not least, I am guilty. Despite not approving of the way the WC was organized, I am still watching some games. I had the same dilemma when the WC was in Qatar 🇶🇦.
+
+---
+
+### 🟧 Orange fever
+
+After a disappointing start against Japan 🇯🇵, the Dutch 🇳🇱 had an incredible game vs. Sweden 🇸🇪. 5-1! Brobbey, Gakpo, and Summerville—players from the Premier League 🏴󠁧󠁢󠁥󠁮󠁧󠁿—scored. I think Sweden 🇸🇪 brought on Elanga too late; he spiced up the game and was a delight to see. 
+
+Watching the game at home was super fun. Each time the Dutch scored, guess what? Fireworks. It took a while for the 1st one—my guess is the fans needed time to go into the attics or garden houses to find them. The Dutch and their fireworks 🎆 it's a love story. In the stadium, we had Queen Máxima and King Willem-Alexander; they are sports aficionados. 
+
+I'll finish on this funny and very telling note. One could see a few Dutch supporters in the stadium with the following message on their shirts: *Houston, we have a solution!*
+
+The other game, Germany 🇩🇪 vs. Ivory Coast 🇨🇮, almost finished with an upset. IC 🇨🇮 scored first. They were threatening in their orange shirts. It took more than 30 minutes for Germany 🇩🇪 to score. I was about to go to bed when at 90+4, the Germans did it again. So they are through to the next round, but Ivory Coast 🇨🇮 failed to preserve that draw. IC 🇨🇮 will certainly go through, though. 
+
+Orange was the color of my evening! 🟧
+
+
+## ⚽ Archive
+
 ### 🌍 Africa rocks!
 
 We all know since 2010 "Waka Waka" from Shakira, which was taken from the original Cameroonian 🇨🇲 makossa song "Zamina mina (Zangaléwa)". In 2026, "this time for Africa" is so true.
@@ -27,7 +56,7 @@ Outside of Africa, the Middle Eastern teams did great too—Iran 🇮🇷 and Sa
 
 Looking at the fantastic results, African countries are getting closer and closer to the cup!
 
-## ⚽ Archive
+-----
 
 ### 🇨🇻 Vozinha, the goalkeeper, the hero of Cabo Verde
 
