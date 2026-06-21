@@ -44,7 +44,7 @@ We all know since 2010 "Waka Waka" from Shakira, which was taken from the origin
 
 Following Cabo Verde's 🇨🇻 feat, look at those AMAZING resulst:
 
-1. **Morocco** 🇲🇦 held the Brazil 🇧🇷 to a 1-1 draw! Ismael Saibari scored a beautiful goal to put them ahead, and even though Vinícius Júnior equalized. Morocco 🇲🇦 is  strong team and tehy can go far.
+1. **Morocco** 🇲🇦 held the Brazil 🇧🇷 to a 1-1 draw! Ismael Saibari scored a beautiful goal to put them ahead, and even though Vinícius Júnior equalized. Morocco 🇲🇦 is  strong team and they can go far.
 2. **Egypt** 🇪🇬 got a 1-1 draw against Belgium 🇧🇪 on Mo Salah's birthday. Belgium 🇧🇪 was saved by a crazy own goal.
 3. **Senegal** 🇸🇳 held a draw in the 1st half against France 🇫🇷 (one of the best teams on paper). They scored a fantastic goal but couldn't compete with Les Bleus and Kylian Mbappé when they switched to 6th gear. 3-1 end result.
 4. **DR Congo (RDC)** 🇨🇩 leveled 1-1 with the well-seasoned Cristiano Ronaldo and Bruno Fernandes of Portugal 🇵🇹. Honestly, RDC 🇨🇩 deserved to win and could have won, but this is where experience makes the difference. They were amazing!
