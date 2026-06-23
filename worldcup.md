@@ -24,7 +24,9 @@ It looks like Mbappé was chasing the top scorer record in a World Cup of Messi.
 
 ### 🛑 Good to know, I am not happy and I am disappointed
 
-Finally, the first trio of female referees to referee a game happened during Czechia 🇨🇿 vs. South Africa 🇿🇦. It was about time 📯. I will ignore for now that the referees are from the United States 🇺🇸. That said, I am shocked by the level of FIFA corruption; the executives do not even hide it anymore. I am disappointed. 
+Finally, the first trio of female referees to referee a game happened during Czechia 🇨🇿 vs. South Africa 🇿🇦. It was about time 📯. I will ignore for now that the referees are from the United States 🇺🇸. 
+
+*​(Let's make a parenthesis: I am shocked by the level of FIFA corruption; the executives do not even hide it anymore. I am disappointed.)*
 
 I love the game, I played the game (amateur) for years, and now I watch the games whenever they're NOT behind a paywall. I am pissed, yes pissed, because now I barely watch football. This is the first time I have no clue which teams or players are best or spectacular from seeing the matches. So kudos to the Dutch broadcast NPO for showing all the games, and the same for the German broadcast ZDF (they dhow mist game). It is actually fun to watch the games on the German channel—one should try to watch a game in another language! My mum, bless her, "watches" the games via YouTube watch-alongs. 
 
