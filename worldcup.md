@@ -4,10 +4,23 @@ title: World Cup 2026 Hub
 ---
 # 🏆 Football World Cup 2026 Journal
 
-Welcome to my mobile matchday journal! I will be updating this page regularly throughout the entire tournament.
+Welcome to my mobile matchday journal! I will be updating this page regularly throughout the entire tournament. 
 
 ---
 ## ⚽ Live Match Updates
+
+### The Blue and Zeus Storm 🇨🇻⛈️⚡
+Cabo Verde did it again. 🇨🇻 I watched the game knowing the result as I failed to wake up at midnight to see it live. My daughter tried but I was too comfy in the arms of Morpheus. 🛌💤 
+The game was incredible and so enjoyable to watch.The players from Cape Verde scored first then conceded 2 goals, one before and one after halftime. And then the goalie of Uruguay 🇺🇾 made the wrong call—leaving his box—which was enough for Varela to score the equalizer. It was nerve-wracking to watch the last 30 minutes. Cabo Verde was exhausted but they held the result. 🙌 
+They have a good chance to make it to the next round. However, will they recover enough to get something out of the last game of the group stage? Regardless, Miami Stadium experienced the Cabo Verde Storm. ⛈️🌪️
+
+### The Philadelphia Deluge 🇺🇸🌧️🌩️
+The other storm happened in the beautiful city of Philadelphia. Town of Rocky Balboa—the stairs are impressive and the view from above stunning. 🥊 Town of the Rodin Museum—the collection is impressive—this is where I saw first a genderless toilet. Town of the famous Philadelphia cheesesteak—it was delicious with a local beer but I couldn't finish it. 🥪🍺
+Back to the actual storm and lightning ⚡ that delayed the game of France 🇫🇷 vs Iraq 🇮🇶 for 2 hours after the 1st 45min. It was pouring down rain 🌧️ and for once I was glad to be in my bed. Funny enough, there was no water break in the second half—I guess the referee figured everyone had already seen, felt, and swallowed enough water to last a lifetime! 🏊‍♂️💦 
+France won 3-0 but I wasn't impressed even if Iraq didn't present a threat.
+It looks like Mbappé was chasing the top scorer record in a World Cup of Messi. 🏆⚽
+
+## ⚽ Archive
 
 ### 🛑 Good to know, I am not happy and I am disappointed
 
@@ -35,9 +48,7 @@ The other game, Germany 🇩🇪 vs. Ivory Coast 🇨🇮, almost finished with 
 
 Orange was the color of my evening! 🟧
 
-
-## ⚽ Archive
-
+---
 ### 🌍 Africa rocks!
 
 We all know since 2010 "Waka Waka" from Shakira, which was taken from the original Cameroonian 🇨🇲 makossa song "Zamina mina (Zangaléwa)". In 2026, "this time for Africa" is so true.
