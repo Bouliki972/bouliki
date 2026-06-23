@@ -1,4 +1,4 @@
-h---
+---
 layout: default
 title: World Cup 2026 Hub
 ---
