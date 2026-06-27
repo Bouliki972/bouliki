@@ -13,9 +13,12 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 Who hasn't heard of Cesária Évora? If you have not, type "Sodade" or her name into a search engine.
 She was a Cape Verdean singer known for her distinct voice and her songs dedicated to melancholy, nostalgia, or the history of Cape Verde. She grabbed you by the guts, and one feels instantly connected with the morna music genre. She put this island on the map for a lot of people, and we can safely say the football team has brought back the spotlight. 🌟 In a sense, they are following her legacy.
+
 As an old colony of Portugal, they are showing teeth and courage. People often underestimate the pain descendants of slaves carry, generation after generation. 🦅
 They finished 2nd with 3 points and are qualified for the next round👏🏼. Forget about the fact that they'll meet the Argentina of Messi! 🇦🇷⚽
+
 I will do my best to visit Cape Verde, which is on a similar latitude as Gorée Island (worth visiting, you won't be the same after). Gorée (Senegal) 🇸🇳, where many left Africa for the "New World". But for now, I will listen to the Best of Cesária Évora and educate myself on Cape Verde—the archipelago of 10 volcanic islands located in the Atlantic Ocean, not far from Senegal. 🌊🌋
+
 ### African Team Updates 🌍⚽
 Senegal won 5-0 after a rocky start ⛈️🌧️ and should make it to the next round, fingers crossed! 🤞 Ivory Coast 🇨🇮, Egypt 🇪🇬, South Africa 🇿🇦, and Morocco 🇲🇦 are already through to the next round.
 
