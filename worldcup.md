@@ -17,6 +17,8 @@ She was a Cape Verdean singer known for her distinct voice and her songs dedicat
 As an old colony of Portugal, they are showing teeth and courage. People often underestimate the pain descendants of slaves carry, generation after generation. 🦅
 They finished 2nd with 3 points and are qualified for the next round👏🏼. Forget about the fact that they'll meet the Argentina of Messi! 🇦🇷⚽
 
+P.S. The Cape Verdean diaspora was already present in other legendary teams, like France 🇫🇷 with Patrick Vieira or Patrice Evra! 🇨🇻⚽"
+
 I will do my best to visit Cape Verde, which is on a similar latitude as Gorée Island (worth visiting, you won't be the same after). Gorée (Senegal) 🇸🇳, where many left Africa for the "New World". But for now, I will listen to the Best of Cesária Évora and educate myself on Cape Verde—the archipelago of 10 volcanic islands located in the Atlantic Ocean, not far from Senegal. 🌊🌋
 
 ### African Team Updates 🌍⚽
