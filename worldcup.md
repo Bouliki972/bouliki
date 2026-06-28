@@ -13,7 +13,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 Knockout stage is not forgiving and it can be seen as the start of a new competition. We might see some surprises.
 
-![David vs Goliath Stats](images/Images/1782630751774.png)
+![David vs Goliath Stats](Images/1782630751774.png)
 
 A bit of stats: 41% of the teams are from Europe, 25% from America, 28% from Africa, 3% from Asia (Japan made it), and 3% from Oceania (Australia did it though they compete in the Asia zone for the WC). Did you know an 8th submerged continent called Zealandia was discovered? Check it out. 
 
