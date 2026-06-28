@@ -13,23 +13,21 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 Knockout stage is not forgiving and it can be seen as the start of a new competition. We might see some surprises.
 
-![Knockout Phase Stats, Vozinha, and Iran's Journey](https://i.ibb.co/XfK7Dnd/watermarked-img-13307057711301352516.png)
-
 A bit of stats: 41% of the teams are from Europe, 25% from America, 28% from Africa, 3% from Asia (Japan made it), and 3% from Oceania (Australia did it though they compete in the Asia zone for the WC). Did you know an 8th submerged continent called Zealandia was discovered? Check it out. 
 
 The 3 hosts of the WC are also through. The chance for an African or Asian country to make it to the final compared to a European is slim but not impossible. That said, one of the Americas teams has—historically—a better chance to reach that stage. Football can be seen as a religion in South America while in North America they call football soccer which is less popular. 
 
 ### The big story of this phase: Cabo Verde 🇨🇻
 
-First qualification to the WC, survived the group stage and Vozinha the iconic goalkeeper has more than 17 million followers, he is the most followed goalkeeper. A lot of people will be rooting for them in their next titanic game vs Argentina. 
+First qualification to the WC, survived the group stage and Vozinha the iconic goalkeeper has more than 17 million followers, he is the most followed goalkeeper. 🧤📲 A lot of people will be rooting for them in their next titanic game vs Argentina. 
 
-The chance of Cabo Verde defeating the winner of the 2022 world cup is nil but a red card or an injury can change things. Who knows. No matter the result I am team Cabo Verde and team Africa.
+The chance of Cabo Verde defeating the winner of the 2022 world cup is nil but a red card or an injury can change things. Who knows. No matter the result I am team Cabo Verde and team Africa.🇨🇻🌍
 
-### A word on Iran
+### A word on Iran 🇮🇷
 
 They just missed out. This team faces so many challenges: geopolitical tensions, visa restrictions for the USA (they had limited technical staff), relocating from Arizona to Tijuana, Mexico and much more. 
 
-Iran played 3 games, scored 3 goals, conceded 3 and finished 3rd in the group. They show resilience and 3 was or is their number. 
+Iran played 3 games, scored 3 goals, conceded 3 and finished 3rd in the group. They show resilience and 3 was or is their number.🏗️💪
 
 Let's hope for exciting games.
 
