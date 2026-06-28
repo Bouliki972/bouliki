@@ -13,6 +13,8 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 Knockout stage is not forgiving and it can be seen as the start of a new competition. We might see some surprises.
 
+![David vs Goliath Stats](images/watermarked_img_13307057711301352516.png)
+
 A bit of stats: 41% of the teams are from Europe, 25% from America, 28% from Africa, 3% from Asia (Japan made it), and 3% from Oceania (Australia did it though they compete in the Asia zone for the WC). Did you know an 8th submerged continent called Zealandia was discovered? Check it out. 
 
 The 3 hosts of the WC are also through. The chance for an African or Asian country to make it to the final compared to a European is slim but not impossible. That said, one of the Americas teams has—historically—a better chance to reach that stage. Football can be seen as a religion in South America while in North America they call football soccer which is less popular. 
