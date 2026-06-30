@@ -9,6 +9,25 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+## 2 choking and one lucky escape... 😲
+First shock: *Die Mannschaft* is out. 🇩🇪❌
+I only watched 5 minutes of it, then opted for a few hours of sleep so I could watch the Netherlands vs. Morocco game at 3 AM. What a game that was! 🤯
+Luckily, my daughter—a big German supporter—watched the entire thing, extra time and penalties. She is "crying" 😢, but I must proudly say her analysis is completely spot on: Germany, even with 75% possession, just wasn't good enough. Gary Lineker, known for his famous football quotes, was brutal: *"This is one of the weakest German national teams I've ever seen."*
+
+A friend told me while we were watching the Dutch play that my daughter had the luxury of supporting 4 teams: Senegal 🇸🇳, France 🇫🇷, the Netherlands 🇳🇱, and Germany 🇩🇪. With Germany already out, she was down to 3 while we watched. 📉
+
+The game between NL and Morocco was so exciting! 🇳🇱🇲🇦 I still cannot believe Morocco scored in injury time. 😱 I was literally on my way to bed to catch a few hours of sleep before heading to work. 🥱 I am surely not the only one in the Netherlands who hasn't slept enough today! Plus, we have a company team photo today... this is officially the worst timing ever. 📸🤦‍♂️
+Extra time was so boring; both teams were just waiting for penalties. 🥱 I even ironed my clothes for work while watching it. In the end, Morocco was overall the best team, and they won the penalty shootout. 🇲🇦🎉
+
+A word on the new way of taking those penalties: Some players want to do a Panenka (but there is only *one* Panenka in the world! 🤷‍♂️), some walk up, some run and slow down. I am old-fashioned: just run and kick the ball! 🎯 From my humble couch, this is the most successful way. The Dutch lost because of those idiotic shots. 🤦‍♂️
+
+As for Brazil, talk about a lucky escape! 🇧🇷🍀 They were really poor, but great teams do not miss opportunities given on a silver platter—capitalizing at the death after an unforgiving mistake from Japan.
+
+And just like that, with the Netherlands out too, my daughter has only 2 teams left. ✌️🇫🇷🇸🇳
+
+
+## ⚽ Archive
+
 ## The knockout phase round of 32- David vs Goliath
 
 Knockout stage is not forgiving and it can be seen as the start of a new competition. We might see some surprises.
@@ -33,7 +52,7 @@ Iran played 3 games, scored 3 goals, conceded 3 and finished 3rd in the group. T
 
 Let's hope for exciting games.
 
-## ⚽ Archive
+----
 
 ## Sodade Revisited 🇨🇻🎶
 
