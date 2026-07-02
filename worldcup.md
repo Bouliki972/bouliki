@@ -9,6 +9,19 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+## Sir Harry Kane saves England... and another African heartbreak 😲🦁
+
+Let's be honest, England was poor for most of the game. DR Congo scored first, which meant England had to chase the score. 🇨🇩⚽ They tried, but the RDC keeper—who was the absolute man of the match—was a brick wall, making incredible saves. I genuinely thought England was heading toward complete humiliation and embarrassment. 🫣
+But England kept pushing and pushing, and it felt like just a matter of time. Then came Kane the captain, a true striker! 🏴󠁧󠁢󠁥󠁮󠁧󠁿🔥 His second goal completely defied the laws of physics—the angle was almost impossible. The "HurriKane" was totally off-balance, yet he managed to launch a rocket with unbelievable power! 🚀 2-1 for England. Sir Harry Kane deserves all the credit. To be fair, Sir Kane (Bayern Munich player he is Bundesliga top scorer again in 2026) is still Tottenham Hotspur's all-time top goalscorer (280) and England's all-time top goalscorer (82). DR Congo was a very strong team and highly enjoyable to watch—they will absolutely be back! 👏
+
+A quick word on France... *Incroyable.* 🇫🇷✨ Only they could somehow find a way to lose this tournament, because the entire squad is exceptional. I mean, their substitutes are literally as good as their starting eleven! It is an absolute luxury. If France doesn't win the whole thing, it’ll be entirely on them. (they won 3-0 vs Sweden!).
+
+Then there was Belgium vs. Senegal. 🇧🇪🇸🇳
+Senegal had a convincing 2-0 lead when I went to bed, so I went to sleep feeling totally confident. I woke up to an alternate reality: Belgium won 3-2! 🤯 The winning goal came from a "dubious" penalty awarded to the Red Devils in the very last minute of extra time. 📜⚖️ I’ve definitely noticed some serious referee inconsistencies during this World Cup. 
+It is so painful to see another African nation knocked out like this. 💔
+And just like that, my daughter has only **one team left** to carry her hopes. *Allez les bleus!* 🇫🇷🤞
+
+-----'
 ## 2 choking and one lucky escape... 😲
 First shock: *Die Mannschaft* is out. 🇩🇪❌
 I only watched 5 minutes of it, then opted for a few hours of sleep so I could watch the Netherlands vs. Morocco game at 3 AM. What a game that was! 🤯
