@@ -9,6 +9,24 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+
+## RESPECT CABO VERDE: THE REAL TEAM OF THE TOURNAMENT 🇨🇻🦈👑
+Lionel Messi scored his 7th goal of the tournament after just 28 minutes. But while watching that first half, I was already thinking: *the Blue Sharks actually have the tools to create an upset here.* I was just too tired, so I went to bed. It was obviously a massive mistake on my part! 🥱❌
+The first surprise came in the 58th minute when Duarte leveled the game! ⚽🔥 From there, Cabo Verde held the fort so incredibly well. VOZINHA made fantastic and decisive saves to keep them alive, despite Messi trying everything. 🧤🧱
+
+The game pushed into extra time, where Cabo Verde conceded a second goal from a free kick. You might think it was all over right then. Not at all! Cabo Verde’s Cabral scored an unforgettable strike from outside the 16-meter box, sending the ball flying straight into the top corner! 🚀🎯 2-2!
+
+Sadly, Argentina eventually won 3-2 off a heartbreaking own goal. 💔 Honestly, Argentina and Messi should be thanking Cabo Verde and feeling embarrassed—they are the 2022 world champions, after all! 🇦🇷🏽‍♂️
+How Messi was named Man of the Match is completely beyond me. 🤯 There is a Messi conspiracy theory going around, and as ridiculous as it might sound, after tonight, you really have to wonder if there isn't some truth to it... 🤔 Don't get me started on FIFA. Instead of giving fake peace prizes to some guy who probably doesn't even know how to spell USA or his name, FIFA should actually work on creating a "Team of the Tournament" award for stories like this. Just saying! 🤷‍♂️🏅
+
+Let's not forget, the Blue Sharks made it all the way to the Round of 32 without losing a single game in regular time. And if this match had gone to a penalty shootout, I am not sure Argentina would have made it through at all.
+*Chapeau* to this team. They never give up, they never surrender. The journey of this Cabo Verde team is as good as any motivational speech you will ever hear. 👏💯
+
+Respect. And yes, I definitely need a Cabo Verde shirt for my upcoming birthday! 🇨🇻👕🏼🙃
+
+-----
+## ⚽ Archive
+
 ## Sir Harry Kane saves England... and another African heartbreak 😲🦁
 
 Let's be honest, England was poor for most of the game. DR Congo scored first, which meant England had to chase the score. 🇨🇩⚽ They tried, but the RDC keeper—who was the absolute man of the match—was a brick wall, making incredible saves. I genuinely thought England was heading toward complete humiliation and embarrassment. 🫣
@@ -38,8 +56,7 @@ As for Brazil, talk about a lucky escape! 🇧🇷🍀 They were really poor, bu
 
 And just like that, with the Netherlands out too, my daughter has only 2 teams left. ✌️🇫🇷🇸🇳
 
-
-## ⚽ Archive
+------
 
 ## The knockout phase round of 32- David vs Goliath
 
