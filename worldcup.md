@@ -13,6 +13,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ## RESPECT CABO VERDE: THE REAL TEAM OF THE TOURNAMENT 🇨🇻🦈👑
 Lionel Messi scored his 7th goal of the tournament after just 28 minutes. But while watching that first half, I was already thinking: *the Blue Sharks actually have the tools to create an upset here.* I was just too tired, so I went to bed. It was obviously a massive mistake on my part! 🥱❌
 
+
 The first surprise came in the 58th minute when Duarte leveled the game! ⚽🔥 From there, Cabo Verde held the fort so incredibly well. VOZINHA made fantastic and decisive saves to keep them alive, despite Messi trying everything. 🧤🧱
 
 The game pushed into extra time, where Cabo Verde conceded a second goal from a free kick. You might think it was all over right then. Not at all! Cabo Verde’s Cabral scored an unforgettable strike from outside the 16-meter box, sending the ball flying straight into the top corner! 🚀🎯 2-2!
