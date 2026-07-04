@@ -18,7 +18,8 @@ The first surprise came in the 58th minute when Duarte leveled the game! ⚽🔥
 
 The game pushed into extra time, where Cabo Verde conceded a second goal from a free kick. You might think it was all over right then. Not at all! Cabo Verde’s Cabral scored an unforgettable strike from outside the 16-meter box, sending the ball flying straight into the top corner! 🚀🎯 2-2!
 
-Sadly, Argentina eventually won 3-2 off a heartbreaking own goal. 💔 Honestly, Argentina and Messi should be thanking Cabo Verde and feeling embarrassed—they are the 2022 world champions, after all! 🇦🇷🏽‍♂️
+Sadly, Argentina eventually won 3-2 off a heartbreaking own goal. 💔 Honestly, Argentina and Messi should be thanking Cabo Verde and feeling embarrassed—they are the 2022 world champions, after all! 
+
 How Messi was named Man of the Match is completely beyond me. 🤯 There is a Messi conspiracy theory going around, and as ridiculous as it might sound, after tonight, you really have to wonder if there isn't some truth to it... 🤔 Don't get me started on FIFA. Instead of giving fake peace prizes to some guy who probably doesn't even know how to spell USA or his name, FIFA should actually work on creating a "Team of the Tournament" award for stories like this. Just saying! 🤷‍♂️🏅
 
 Let's not forget, the Blue Sharks made it all the way to the Round of 32 without losing a single game in regular time. And if this match had gone to a penalty shootout, I am not sure Argentina would have made it through at all.
