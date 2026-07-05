@@ -9,8 +9,8 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
-The Paraguay Trap 🇵🇾🪤
-​
+
+## The Paraguay Trap 🇵🇾🪤
 
 ​This game against Paraguay was NOT enjoyable at all. It was dirty, messy (and no, not Messi), and the absolute opposite of what a football game is supposed to be. 😣 The Paraguay players were pushing, elbowing, kicking, and doing so much more without ever being punished by the referee. Meanwhile, France picked up 3  logical yellow cards. But again, I am not sure why the referee did absolutely nothing, and why VAR completely looked the other way against Paraguay's antics. 🤷‍♂️🤬
 
