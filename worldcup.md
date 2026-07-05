@@ -1,4 +1,4 @@
-u---
+---
 layout: default
 title: World Cup 2026 Hub
 ---
@@ -11,9 +11,10 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 ## The Paraguay Trap 🇵🇾🪤
 
-​This game against Paraguay was NOT enjoyable at all. It was dirty, messy (and no, not Messi), and the absolute opposite of what a football game is supposed to be. 😣 The Paraguay players were pushing, elbowing, kicking, and doing so much more without ever being punished by the referee. Meanwhile, France got 3  logical yellow cards. But again, I am not sure why the referee did absolutely nothing, and why VAR completely looked the other way against Paraguay's antics. 🤷‍♂️🤬
+​This game against Paraguay was NOT enjoyable at all. It was dirty, messy (and no, not Messi), and the absolute opposite of what a football game is supposed to be. 😣 The Paraguay players were pushing, elbowing, kicking, and doing so much more without ever being punished by the referee. Meanwhile, France got 3  logical yellow cards. But again, I am not sure why the referee did absolutely nothing, and why VAR completely looked the other way against Paraguay's anti-football tricks. 🤷‍♂️🤬
 
-​It makes you wonder... another conspiracy? 🤨 You know, like the Messi conspiracy back in Qatar 2022—where everyone felt like Argentina was destined to win because poor Messi had never won a World Cup. Fast forward to now, and Argentina gets an "easy" path, even though they almost got completely kicked out by Cabo Verde. Messi doesn't even get a card despite an obvious foul against Algeria! Is he receiving gold-star treatment, or does it go even deeper than that? What was the ultimate aim here—eliminate France to clear an easy path for the USA, who in theory would lose to Argentina anyway? 🇺🇸🇦🇷🤔
+​It makes you wonder... another conspiracy? 🤨 You know, like the Messi conspiracy back in Qatar 2022—where everyone felt like Argentina was destined to win because poor Messi had never won a World Cup. Fast forward to now, and Argentina gets an "easy" path, even though they almost got completely kicked out by Cabo Verde. Messi doesn't even get a card despite an obvious foul against Algeria 🇩🇿! Is he receiving gold-star treatment, or does it go even deeper than that? What was the ultimate aim here—eliminate France to clear an easy path for the USA, who in theory would lose to Argentina anyway? 🇺🇸🇦🇷🤔
+
 ​Regardless of the refereeing, we  have to acknowledge the incredible acting skills of Paraguay. 🎭 Standard stunts, perfectly scripted! They must have attended Juilliard or the Cours Florent in Paris before the tournament. 🤣🎬
 
 ​Luckily, France did not fall into the trap. They stayed remarkably calm under the pressure, and that shows  maturity and strength. 🧘‍♂️💪 France was by far the better team, no doubt about it, and they rightfully won 1-0 after being awarded a penalty. 🎯⚽ A game to forget!
@@ -21,7 +22,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ### Morocco did it
 In the other game Morocco vs. Canada 🇲🇦🇨🇦 history was made. Morocco has officially become the first African nation in history to qualify for the Quarter-finals more than once! Well done.
 
-The quarter finals Morocco 🇲🇦 France 🇫🇷 should be a good game. 
+The quarter finals Morocco 🇲🇦 France 🇫🇷 should be a good game. Allez les bleus!
 
 ## ⚽ Archive
 -----
