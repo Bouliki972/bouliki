@@ -11,6 +11,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 The Paraguay Trap 🇵🇾🪤
 ​
+
 ​This game against Paraguay was NOT enjoyable at all. It was dirty, messy (and no, not Messi), and the absolute opposite of what a football game is supposed to be. 😣 The Paraguay players were pushing, elbowing, kicking, and doing so much more without ever being punished by the referee. Meanwhile, France picked up 3  logical yellow cards. But again, I am not sure why the referee did absolutely nothing, and why VAR completely looked the other way against Paraguay's antics. 🤷‍♂️🤬
 
 ​It makes you wonder... another conspiracy? 🤨 You know, like the Messi conspiracy back in Qatar 2022—where everyone felt like Argentina was destined to win because poor Messi had never won a World Cup. Fast forward to now, and Argentina gets an "easy" path, even though they almost got completely kicked out by Cabo Verde. Messi doesn't even get a card despite an obvious foul against Algeria! Is he receiving gold-star treatment, or does it go even deeper than that? What was the ultimate aim here—eliminate France to clear an easy path for the USA, who in theory would lose to Argentina anyway? 🇺🇸🇦🇷🤔
