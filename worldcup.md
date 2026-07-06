@@ -11,16 +11,22 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 ## Erling Braut: The Norse Haalan-mmer 🇳🇴🔨
 
-I missed that match—too tired—but I watched the highlights. Norway is a beautiful country; I absolutely love it. 🥰 I have been to Tromsø, located right on the Arctic Circle, where I saw the northern lights and dived into the ice-cold fjord followed by a lovely sauna. 🥶🧖‍♂️ I also did a road trip from Oslo (where I completely failed to pull Thor’s hammer! ⚡️🔨) all the way to Bergen and its 7 mountains. ⛰ *Sodade revisited* vibes all over again.
+I missed that match—too tired—but I watched the highlights. Norway is a beautiful country; I absolutely love it. 🥰 I have been to Tromsø, located right on the Arctic Circle, where I saw the northern lights and dived into the ice-cold fjord followed by a lovely sauna. 🥶🧖‍♂️ 
+I also did a road trip from Oslo (where I completely failed to pull Thor’s hammer! ⚡️🔨) all the way to Bergen and its 7 mountains. ⛰ *Sodade revisited* vibes all over again.
 
-I love the fjords, the water, the nature. But what struck me most in Bergen is that *everyone* is insanely fit (compared to me that is not difficult). Norway seems completely sports- and physical-activity-oriented. While climbing Mount Ulriken, I was literally on the verge of dying 🥵, only to see an old lady just walking by, not a single drop of sweat on her, chatting away with her friends like she was in a casual park! 👵🚶‍♀️
+I love the fjords, the water, the nature. But what struck me most in Bergen is that *everyone* is insanely fit (compared to me that is not difficult). Norway seems completely sports- and physical-activity-oriented. While climbing Mount Ulriken, I was literally on the verge of dying 🥵, only to see an old lady just walking by, not a single drop of sweat on her, chatting away with her friends like she was in a casual park! 👵🚶‍♀️.
+
 My point is: Norway is known for all those natural wonders and crazy mountain tunnels. Now, they've made history by qualifying for the Quarter-finals! 🚨 They completely smashed Brazil 2-1. 🇧🇷💥 Brazil has been a massive disappointment this tournament, and to be fair, they only had a lucky escape against Japan anyway.
+
 And that Norwegian viking rowing celebration? IMPRESSIVE! 🚣‍♂️🔥 Plus, Haaland has now leveled with Mbappé and Messi at 7 goals in the race for the Golden Boot! 🥾⚽
 I am also team Norway.
 
 ### Coming home?? 🏴󠁧󠁢󠁥󠁮󠁧󠁿🤔
 As for England, they showed real resilience and strength in their 3-2 thriller against Mexico. 🇲🇽 They had to play the last 25 minutes 10 vs 11 after a red card, and Jordan Pickford completely held the fort under immense pressure at the Azteca. 🧤🏰
 Norway vs. England in the Quarter-finals is going to be an absolutely fascinating game. The Vikings against the Three Lions! 🇳🇴⚔️🏴󠁧󠁢󠁥󠁮󠁧󠁿
+
+------
+## ⚽ Archive
 
 ------
 ## The Paraguay Trap 🇵🇾🪤
@@ -38,7 +44,6 @@ In the other game Morocco vs. Canada 🇲🇦🇨🇦 history was made. Morocco 
 
 The quarter finals Morocco 🇲🇦 France 🇫🇷 should be a good game. Allez les bleus!
 
-## ⚽ Archive
 -----
 ## RESPECT CABO VERDE: THE REAL TEAM OF THE TOURNAMENT 🇨🇻🦈👑
 Lionel Messi scored his 7th goal of the tournament after just 28 minutes. But while watching that first half, I was already thinking: *the Blue Sharks actually have the tools to create an upset here.* I was just too tired, so I went to bed. It was obviously a massive mistake on my part 🥱❌!
