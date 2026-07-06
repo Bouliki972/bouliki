@@ -19,11 +19,13 @@ I love the fjords, the water, the nature. But what struck me most in Bergen is t
 My point is: Norway is known for all those natural wonders and crazy mountain tunnels. Now, they've made history by qualifying for the Quarter-finals! 🚨 They completely smashed Brazil 2-1. 🇧🇷💥 Brazil has been a massive disappointment this tournament, and to be fair, they only had a lucky escape against Japan anyway.
 
 And that Norwegian viking rowing celebration? IMPRESSIVE! 🚣‍♂️🔥 Plus, Haaland has now leveled with Mbappé and Messi at 7 goals in the race for the Golden Boot! 🥾⚽
+
 I am also team Norway.
 
 ### Coming home?? 🏴󠁧󠁢󠁥󠁮󠁧󠁿🤔
 As for England, they showed real resilience and strength in their 3-2 thriller against Mexico. 🇲🇽 They had to play the last 25 minutes 10 vs 11 after a red card, and Jordan Pickford completely held the fort under immense pressure at the Azteca. 🧤🏰
-Norway vs. England in the Quarter-finals is going to be an absolutely fascinating game. The Vikings against the Three Lions! 🇳🇴⚔️🏴󠁧󠁢󠁥󠁮󠁧󠁿
+Norway vs. England in the Quarter-finals is going to be an absolutely fascinating game. 
+The Vikings against the Three Lions! 🇳🇴⚔️🏴󠁧󠁢󠁥󠁮󠁧󠁿
 
 ------
 ## ⚽ Archive
