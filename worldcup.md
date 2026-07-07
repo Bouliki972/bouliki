@@ -9,6 +9,32 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
+## Football, Sovereignty, and the Planet of the Apes 🇺🇸🇧🇪🦍
+
+Well, well. The USA is out! There are officially no more host nations left at the World Cup. They lost badly, 4-1, to a Belgium side that played exceptionally well. Though the US managed to level the game on a free kick completely against the run of play, a blunder on the third goal secured belgium victory. I'm still not sure what the keeper was thinking, but he essentially gifted the ball to Belgium, who scored with ease. 🎁⚽
+
+Has justice been served? Maybe. But it is not a moment to celebrate. 
+
+This morning, it truly felt like the rest of the world vs. the United States. Why? Rumor has it someone in the White House picked up the phone and told "Fair FIFA" to overturn Folarin Balogun's red card. Whether FIFA’s top man made the executive decision alone or pushed it through a committee remains a mystery, but it looks incredibly suspicious. It triggered a massive controversy; Belgium appealed the decision and failed. But I think it backfired—it fired the Red Devils up, while the USA completely forgot to focus on the game itself. What a shame. 
+
+It makes you wonder: are we experiencing live corruption and dictatorship in sport, mirroring the horrible wars happening across our world? 🏛️💔 It is a sad reflection on mankind, and it brings me straight back to the original *Planet of the Apes* book, where human ego completely destroys humanity and allows the rise of the apes. 
+
+The ending of that book is so unexpected that I immediately read it a second time to look past the plot and find the deeper meaning. It’s captivating, easy to read, and leaves you deeply questioning the future of humanity. Honestly, it is a must-read for our current AI era. We think we are the dominant, untouchable species on Earth, yet we fail to live in harmony and peace. Our massive pride is always our undoing. 🤖🦍
+
+### The Shifts and Shady Dramas
+
+To complete the chaotic picture of this tournament's underlying tensions, a Paraguayan official reportedly insulted Kylian Mbappé. 🤬 It’s a reminder of history—we all know who famously took refuge in South America after WWII. 
+
+Yes, France has a very colourful, diverse squad, much like other teams. Is that really surprising? A country's colonial past is visible, and there is no escaping history. A very good friend of mine said it perfectly for years: Europe stole from others, displaced, mistreated, and enslaved people. Now, they want to close their borders and erase that piece of history. You cannot have it all. It is payback time, and the world is shifting, gradually growing fed up with the old dynamics. ⏳🌍
+
+Honestly, everyone should do a DNA test—they might be highly surprised by what they find! I myself discovered I have some Nepalese genes, and I am incredibly proud of it. hi hi 🇳🇵🧬 Borders are man-made, but our blood is connected to the whole world.
+
+At the end of the day, I just want to enjoy football without all the drama, political interference, and money business. 
+
+I almost told myself I should just switch off the TV and watch the Tour de France instead... but who am I kidding? Nah. 🚴‍♂️❌
+------
+## ⚽ Archive
+----
 ## Erling Braut: The Norse Haalan-mmer 🇳🇴🔨
 
 I missed that match—too tired—but I watched the highlights. Norway is a beautiful country; I absolutely love it. 🥰 I have been to Tromsø, located right on the Arctic Circle, where I saw the northern lights and dived into the ice-cold fjord followed by a lovely sauna. 🥶🧖‍♂️ 
@@ -26,9 +52,6 @@ I am also team Norway.
 As for England, they showed real resilience and strength in their 3-2 thriller against Mexico. 🇲🇽 They had to play the last 25 minutes 10 vs 11 after a red card, and Jordan Pickford completely held the fort under immense pressure at the Azteca. 🧤🏰
 Norway vs. England in the Quarter-finals is going to be an absolutely fascinating game. 
 The Vikings against the Three Lions! 🇳🇴⚔️🏴󠁧󠁢󠁥󠁮󠁧󠁿
-
-------
-## ⚽ Archive
 
 ------
 ## The Paraguay Trap 🇵🇾🪤
