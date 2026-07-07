@@ -31,7 +31,7 @@ Honestly, everyone should do a DNA test—they might be highly surprised by what
 
 At the end of the day, I just want to enjoy football without all the drama, political interference, and money business. 
 
-I almost told myself I should just switch off the TV and watch the Tour de France instead... but who am I kidding? Nah. 🚴‍♂️❌
+I almost told myself I should just hive up on footbal and watch the Tour de France instead... but who am I kidding? Nah. 🚴‍♂️❌
 ------
 ## ⚽ Archive
 ----
