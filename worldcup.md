@@ -29,9 +29,10 @@ Yes, France has a very colourful, diverse squad, much like other teams. Is that 
 
 Honestly, everyone should do a DNA test—they might be highly surprised by what they find! I myself discovered I have some Nepalese genes, and I am incredibly proud of it. hi hi 🇳🇵🧬 Borders are man-made, but our blood is connected to the whole world.
 
-At the end of the day, I just want to enjoy football without all the drama, political interference, and money business. 
+At the end of the day, I just want to enjoy football without all the drama, political interference, and money business.
 
-I almost told myself I should just hive up on footbal and watch the Tour de France instead... but who am I kidding? Nah. 🚴‍♂️❌
+I almost told myself I should just give up on football and watch teh Tour de France istead... but who am I kidding? Nah.🚴‍♂️❌ 
+ 
 ------
 ## ⚽ Archive
 ----
