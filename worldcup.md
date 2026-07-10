@@ -19,13 +19,16 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 *Hits you when you're down*
 
 *It's a fool's game*
+
 *Nothing but a fool's game*
+
 *Standing in the cold rain*
+
 *Feeling like a clown*
 
 The legendary Welsh singer Bonnie Tyler left us on July 8th. I used to listen to *Total Eclipse of the Heart* en boucle when I was a student; it perfectly reflected my state of mind back then. 🎶🖤 It feels only natural to remember her moving voice today, because there is plenty of heartache to go around.
 
-Morocco, the final African nation left in the competition, has officially exited the World Cup. unfortunately, they were just no match for France. The tactics put in place by the Moroccan coach simply didn't work. That said they leave the world cup with full of pride and honor. They reached the final of the Africa Cup of Nations recently, and mark my words: they will be back (like Rambo!). 🇲🇦🦁⚔️
+Morocco, the final African nation left in the competition, has officially exited the World Cup. Unfortunately, they were just no match for France. The tactics put in place by the Moroccan coach simply didn't work. That said they leave the world cup with full of pride and honor. They reached the final of the Africa Cup of Nations recently, and mark my words: they will be back (like Rambo!). 🇲🇦🦁⚔️
 
 As for me? I fell asleep and completely missed both goals. 😴 I guess I severely lack football fitness. On Monday, I will absolutely go to the gym... NOT. 🏋️‍♂️❌
 
