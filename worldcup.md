@@ -13,7 +13,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 ### The Norse Warriors 🇳🇴🏴󠁧󠁢󠁥󠁮󠁧󠁿
 
-I had difficulty staying awake after an afternoon at the beach and, of course, too much football. Norway was clearly the better team. The Norsemen scored twice, but the second goal was ultimately disallowed because Erling pushed an English player in the box. The first goal was an absolute beauty. 🏔️✨
+I had difficulty staying awake after an afternoon at the beach and, of course, too much football. Norway was clearly the better team. The Norsemen scored twice, but the second goal was disallowed because Erling pushed an English player in the box. The first goal was an absolute beauty. 🏔️✨
 
 Yet, it was Jude Bellingham who saved England by scoring twice. Was his first goal actually valid, though? FIFA—no longer a trusted organization not only in my book—claimed the ball leading to the goal didn't touch the overhead camera cables hanging above the field. 🎥👀 Was England the better side? For the first 90 minutes, not at all. I am sure Dr. G., my number-one England fan friend, might disagree with me, but they were poor. Extra time saved them. Erling Haaland, the star player, was exhausted and barely got any balls. Norway created the better chances, but at the end of the day, a game is won by scoring goals. ⚽🥅
 
