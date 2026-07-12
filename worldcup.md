@@ -8,6 +8,27 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 ---
 ## ⚽ Live Match Updates
+
+## The Norse Warriors & The White Cross ⚔️🏔️🌟
+
+### The Norse Warriors 🇳🇴🏴󠁧󠁢󠁥󠁮󠁧󠁿
+
+I had difficulty staying awake after an afternoon at the beach and, of course, too much football. Norway was clearly the better team. The Norsemen scored twice, but the second goal was ultimately disallowed because Erling pushed an English player in the box. The first goal was an absolute beauty. 🏔️✨
+
+Yet, it was Jude Bellingham who saved England by scoring twice. Was his first goal actually valid, though? FIFA—no longer a trusted organization not only in my book—claimed the ball leading to the goal didn't touch the overhead camera cables hanging above the field. 🎥👀 Was England the better side? For the first 90 minutes, not at all. I am sure Dr. G., my number-one England fan friend, might disagree with me, but they were poor. Extra time saved them. Erling Haaland, the star player, was exhausted and barely got any balls. Norway created the better chances, but at the end of the day, a game is won by scoring goals. ⚽🥅
+
+I'll conclude this section with a beautiful quote from my friend C: 
+> "The story of Norway (and Morocco!) is very symbolic and inspiring for teams who haven't won in the last years. I think this must also be the message that sports should have for the world. Isn't it? It's for everyone. Not just a few. But... I am an idealist. ☺️ And as we say in the Philippines: 'the ball is round', meaning, anything can happen." 🇵🇭🌍
+
+### The White Cross 🇨🇭🇦🇷
+
+Over in the other match, Switzerland leveled the score in the second half to bravely drag the game into extra time. The Swiss played an incredible 50 minutes with only 10 men, and that is why—maybe—Argentina managed to escape with a 3-1 win at the end. Argentina hasn't looked impressive at all compared to the likes of England, France, and Spain... but they know how to score when it matters. 🇦🇷👹
+
+The one absolute certainty now? A European team will be in the finals. Whether it's actually "coming home" or not... well, that's a whole other story. 🏆🏴󠁧󠁢󠁥󠁮󠁧󠁿
+
+------
+## ⚽ Archive
+----
 ## It's a Heartache: France beat the Atlas Lions 🇫🇷🇲🇦💔
 
 *It's a heartache*
@@ -62,8 +83,7 @@ At the end of the day, I just want to enjoy football without all the drama, poli
 
 I almost told myself I should just give up on football and watch teh Tour de France istead... but who am I kidding? Nah.🚴‍♂️❌ 
  
-------
-## ⚽ Archive
+
 ----
 ## Erling Braut: The Norse Haalan-mmer 🇳🇴🔨
 
