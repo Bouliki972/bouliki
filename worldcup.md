@@ -9,9 +9,9 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 
-​⚽ Semi-Final Report: Bloed, Zweet,  en Tranen
+​### Bloed, Zweet, en Tranen
 
-​The pure disillusion.
+​## The pure disillusion.🇫🇷
 ​Remember a while back when I said France had all the tools to win this cup? Well, their loss is entirely on them. We cannot blame the silly penalty given after 20 minutes—the referee had no choice. But then Saliba left the pitch right after due to an early injury, and from that point on, it was all downhill.
 
 ​The game was decided in the midfield, and guess what? Spain has the best one in the world right now. France was unrecognisable: inaccurate passes, the goalie playing with fire, and our star players practically invisible. The coach made some changes, but they only led to a second Spanish goal.
@@ -21,18 +21,19 @@ Oh well. Well done to Spain, the current European champions.
 ​And just like that, my daughter has no teams left to root for!
 
 
-​❌ It's Not Coming Home (Again)
+##​ ❌ It's Not Coming Home 🏴󠁧󠁢󠁥󠁮󠁧󠁿 (Again)
 
 ​The first half of the England vs. Argentina game was tough to watch. It was incredibly physical, with so many fouls, and neither team managed a single shot on target. Beyond the messy play, I found the attitude of this Argentinian team quite disrespectful; unfortunately, they have a history of borderline discriminatory behavior on the pitch, and we saw glimpses of that unsportsmanlike conduct again.
 
-​The second half, however, was a completely different story. England scored a beautifully built goal through Gordon. The entire country, Dr. Gill, David Beckham, and even I thought: *That’s it. After 60 years, they are finally going to another final.
+​The second half, however, was a completely different story. England scored a beautifully built goal through Gordon. The entire country, Dr. Gill, David Beckham, and even I thought: *That’s it. After 60 years, they are finally going to another final.*
 
 ​But somehow, Argentina decided to play.
 ​The England coach made a massive tactical error from my point of view. With 20 minutes before the final whistle, he substituted two attacking players for defenders. The result? Argentina (one assist  Messi) scored twice—the second one coming in painful extra time.
 
 ​Incroyable is the word. Too bad for the English.
+But England has done very well reaching that stage. 👏🏼
 
-​🏆 What's next.
+##​ 🏆 What's next.
 
 ​The Small Final (3rd place): France vs. England
 ​The Grand Final: Spain vs. Argentina
