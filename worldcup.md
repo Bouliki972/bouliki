@@ -12,7 +12,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 
 ## Blood, Zweet en Tranen
 
-​### The pure disillusion 🇫🇷
+### The Pure Desillusion 🇫🇷
 
 ​Remember a while back when I said France had all the tools to win this cup? Well, their loss is entirely on them. We cannot blame the silly penalty given after 20 minutes—the referee had no choice. But then Saliba left the pitch right after due to an early injury, and from that point on, it was all downhill.
 
