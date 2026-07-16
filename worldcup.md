@@ -10,7 +10,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ## ⚽ Live Match Updates
 ------
 
-## Blood, Zweet en Tranen
+## Bloed, Zweet en Tranen
 
 ### The Pure Desillusion 🇫🇷
 
