@@ -10,6 +10,29 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ## ⚽ Live Match Updates
 ------
 
+# 🥉 The Third Place Is Coming Home: What a Match!
+
+What a match! It was pure entertainment. 🔥
+
+In the end, England won, though France certainly could have. The difference was that France was simply **NOT** consistent throughout the game, while England showed real character and a desire to win. The substitutions England made at the end of the game were spot on this time. Thomas Tuchel is certainly back in the good graces of the British press! 📰✍️
+
+Where was France in the first half? Probably sleeping like me—I actually missed the first two goals! 😴
+
+By halftime, France was 4-0 down. Yes, 4-0! 😱 Then in the second half, Didier Deschamps—in his last game as coach—made three changes that had an immediate impact. Suddenly it was 4-3 for England. I genuinely thought France might pull off a legendary comeback, a memorable *remontada*. But it wasn't meant to be. They conceded a clear penalty to make it 5-3. Then, in injury time, France scored again to make it 5-4. But guess what? England immediately sealed their deserved victory: 6-4. 🏴󠁧󠁢󠁥󠁮󠁧󠁿💪
+
+Ten goals in total—that is fantastic for the neutrals! ⚽🎉
+
+We have to give credit to England. They exploited every single one of France's mistakes and converted them into goals, which is the true sign of a big team. They even left Pickford (their number one goalie) and **Sir Harry Kane** on the bench! Is England finally back to the level we expect them to be? Yes, they are back. 🦁
+
+As for France, it was a shameful first-half performance. I would love to know what went through their heads. Perhaps this third-place match meant nothing to them, but even so, they could have done it for the coach who is stepping down. 🇫🇷 Disappointing.
+
+Oh well. As my friend Dr. Gill (a massive England fan) put it: 
+> "🫢 I'm lost for words..."
+
+---
+## ⚽ Archive
+----
+
 ## Bloed, Zweet en Tranen
 
 ### The Pure Desillusion 🇫🇷
@@ -41,8 +64,6 @@ But England has done very well reaching that stage. 👏🏼
 ​The Grand Final: Spain vs. Argentina
 ​Personally, I really hope Spain wins. If not, the "Messi conspiracy" and FIFA whispers will be more than alive!
 
-----
-## ⚽ Archive
 ----
 ## The Norse Warriors & The White Cross ⚔️🏔️🌟
 
