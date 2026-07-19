@@ -10,7 +10,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ## ⚽ Live Match Updates
 ------
 
-# 🥉 The Third Place Is Coming Home: What a Match!
+# 🥉 The Third Place Is Coming Home
 
 What a match! It was pure entertainment. 🔥
 
