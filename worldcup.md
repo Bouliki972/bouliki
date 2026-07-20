@@ -9,7 +9,7 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 ------
-# The Final Dance of Paella: Viva España!
+# The Final Paëlla 🥘 Dance
 
 I have to start with the closing ceremony—I got so annoyed with the heavy US production. Three singers performed the FIFA anthem, and I only recognized Robbie Williams. For me, all modern pop songs and voices sound exactly the same nowadays. A legend like Tina Turner or Sade had a distinct, unmistakable voice! Then we had *Mission: Impossible* actor Tom Cruise giving a speech that felt exactly like it was written by AI—completely robotic and not worth trying to extract any deep essence from it. 🤖🤖🤖
 
@@ -38,7 +38,9 @@ In the end, justice prevailed. The absolute best team of the tournament won, and
 
 >This is the time for me to thank Miss Philippines, Miss Denmark, the one and only Dr Gill and Goddess for supporting during this long world cup. I am grateful 🙏 
 
-
+---
+## ⚽ Archive
+----
 # 🥉 The Third Place Is Coming Home
 
 What a match! It was pure entertainment. 🔥
@@ -58,8 +60,7 @@ As for France, it was a shameful first-half performance. I would love to know wh
 Oh well. As my friend Dr. Gill (a massive England fan) put it: 
 > "🫢 I'm lost for words..."
 
----
-## ⚽ Archive
+
 ----
 
 ## Bloed, Zweet en Tranen
