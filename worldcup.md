@@ -36,7 +36,7 @@ In the end, justice prevailed. The absolute best team of the tournament won, and
 
 **Viva España!** 🇪🇸🏆👑
 
-This is the time for me to thank Miss Philippines, Miss Denmark, the one and only Dr Gill and Goddess for supporting during this long world cup. I am grateful 🙏 
+>This is the time for me to thank Miss Philippines, Miss Denmark, the one and only Dr Gill and Goddess for supporting during this long world cup. I am grateful 🙏 
 
 
 # 🥉 The Third Place Is Coming Home
