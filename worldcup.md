@@ -9,6 +9,35 @@ Welcome to my mobile matchday journal! I will be updating this page regularly th
 ---
 ## ⚽ Live Match Updates
 ------
+# The Final Dance of Paella: Viva España!
+
+I have to start with the closing ceremony—I got so annoyed with the heavy US production. Three singers performed the FIFA anthem, and I only recognized Robbie Williams. For me, all modern pop songs and voices sound exactly the same nowadays. A legend like Tina Turner or Sade had a distinct, unmistakable voice! Then we had *Mission: Impossible* actor Tom Cruise giving a speech that felt exactly like it was written by AI—completely robotic and not worth trying to extract any deep essence from it. 🤖🤖🤖
+
+Back to the actual game: the first 15 minutes were exciting and completely dominated by Spain. After that, it became quite boring, mostly due to Argentina’s approach. To quote another friend of mine: 
+> "Did the Argentinian players just fail to find a spot on the rugby team, so they had to choose soccer instead? 🤔"
+
+It was still 0-0 at halftime, leading into a massive halftime show featuring Madonna, Justin Bieber, Ted Lasso, and others. Just like the random water breaks, it's clear these spectacles are designed strictly for the US audience to generate money. I am highly afraid this format is here to stay for the next World Cup. 💰💸
+
+## From Football to Mixed Martial Arts
+
+By the end of the 90 minutes, Argentina finally received a red card—though in reality, they should have had at least two. A few of my football friends joked that the Argentinians thought they were competing in an MMA (Mixed Martial Arts) match. 
+
+There wasn't much football to speak of, so we naturally reached extra time. Funnily enough, I actually missed the decisive moment during a bathroom break! I like to think my perfectly timed break is what finally led to the winning goal for Spain. Hihi! 🚪🚶‍♂️
+
+It is also worth mentioning that Spain had previously scored a beautiful goal that was canceled for absolutely no apparent reason. The refereeing process throughout the match was incredibly poor; I am still not sure why there was such a massive reluctance to discipline Argentina with clear yellow or red cards. 🟥🤦‍♂️
+
+## The Right Team Won
+
+Even after the final whistle, the drama didn't stop. Paredes, who easily should have been sent off during the match, got right into a fight. It was deeply embarrassing. In short, the way Argentina played was despicable. It feels like the only way they know how to win is by constantly provoking their opponents, playing dirty to win a free kick, and trying to capitalize from there. They are highly skilled players, so they really shouldn't need to resort to such toxic tactics. 🤬
+
+To wrap up the spectacle, Donald Trump was loudly booed the moment he stepped onto the pitch to congratulate the winners. No comment on that one! 🤐
+
+In the end, justice prevailed. The absolute best team of the tournament won, and that team is Spain. 
+
+**Viva España!** 🇪🇸🏆👑
+
+This is the time for me to thank Miss Philippines, Miss Denmark, the one and only Dr Gill and Goddess for supporting during this long world cup. I am grateful 🙏 
+
 
 # 🥉 The Third Place Is Coming Home
 
